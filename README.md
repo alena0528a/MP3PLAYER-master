@@ -1,1 +1,2 @@
 
+LINH MIAN HIGH 首張專輯
