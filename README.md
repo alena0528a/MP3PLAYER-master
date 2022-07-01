@@ -1,2 +1,2 @@
 
-LIN MIAN HIGH 首張專輯
+LIN MIAN HAI 首張專輯
